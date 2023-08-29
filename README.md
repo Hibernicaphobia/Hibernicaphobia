@@ -5,6 +5,7 @@
 - 🌱 I’m currently learning : ~!Russian(on duolingo) ~!Morse code(just started!)
 - 💞️ I’m looking to collaborate on : nothing atm!
 - 📫 How to reach me : by interracting on pt or texting me on my discord alt-> Nuu the carpet#1079
+- MORE INFORMATION ABOUT ME ON MY PATREON!!!!!!!
 
 <!---
 Hibernicaphobia/Hibernicaphobia is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
